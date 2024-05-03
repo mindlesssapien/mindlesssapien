@@ -1,3 +1,2 @@
 i know html , how to meet ladies .
-
-![68747470733a2f2f692e70696e696d672e636f6d2f353634782f31372f34342f65642f31373434656438346639323366316161346239303032373134336566366465302e6a7067](https://github.com/mindlesssapien/mindlesssapien/assets/92213034/412d2178-7dd9-4565-a646-cb5fb91e767c)
+![image](https://github.com/mindlesssapien/mindlesssapien/assets/92213034/d9e78fd8-3312-4b2e-ad07-249ea0e6573f)
