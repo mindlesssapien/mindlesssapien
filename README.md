@@ -1,2 +1,1 @@
-aADy.lore
-(under development)
+learning ML.
